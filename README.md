@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Zaï and I like coding (kinda)
 - 💞️ I love learning about everything and anything
-- ⚡ Fun fact: I love cookies more than humans
+- ⚡ I love cookies more than humans
