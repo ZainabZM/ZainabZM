@@ -7,7 +7,7 @@
 - 😄 Pronouns: Cookie/Cookies
 - ⚡ Fun fact: I love cookies more than humans
 - ⚽ I LOVE football and Real Madrid is the best club in the history of football HALA MADRID Y NADA MAS !!!!
-- 📺 My top 3 favourites mangas : Naruto, DBZ, Attack on Titan  
+- 📺 My top 3 favourites mangas : Naruto, DBZ, SNK 
 
 <!---
 ZainabZM/ZainabZM is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
