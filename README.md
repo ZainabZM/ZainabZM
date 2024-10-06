@@ -1,3 +1,3 @@
-- 👋 Hi, I’m Zaï and I'm found of coding
+- 👋 Hi, I’m Zaï and I'm fond of coding
 - 💞️ I love learning about everything and anything
 - ⚡ Fun fact: I love cookies more than humans
